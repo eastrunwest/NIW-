@@ -89,3 +89,7 @@ A：当然可以，中国女生找个row国家的女生结婚或者男生找男�
 
 ### tg群：
 https://t.me/+yILvRPJRa0Y5MjZl
+
+### wx群：
+![image](https://github.com/eastrunwest/NIW-/assets/153963627/55e2efc1-a11f-41f1-8481-32b6c8fb42bc)
+
