@@ -94,5 +94,3 @@ https://t.me/+yILvRPJRa0Y5MjZl
 
 ![image](https://github.com/eastrunwest/NIW-/assets/153963627/dc4570b9-3f69-45a8-8e68-128c063f190e)
 
-![image](https://github.com/eastrunwest/NIW-/assets/153963627/33aa0b5d-d327-4d37-a871-9c4a4aea2f2b)
-
