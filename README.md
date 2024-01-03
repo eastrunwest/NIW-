@@ -92,5 +92,6 @@ https://t.me/+yILvRPJRa0Y5MjZl
 
 ### wx群：
 
-![image](https://github.com/eastrunwest/NIW-/assets/153963627/dc4570b9-3f69-45a8-8e68-128c063f190e)
+![image](https://github.com/eastrunwest/NIW-/assets/153963627/934db170-c94a-4fe6-8739-40ddfac838ff)
+
 
